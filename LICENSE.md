@@ -1,4 +1,4 @@
-# 
+# آلي geckoterminal sniper bot سكريبتات لـ Mac OS | ذكي geckoterminal sniper bot سكريبتات لـ PC Windows. مع فهرسة البلوكشين و لوحات معلومات مخصصة — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
